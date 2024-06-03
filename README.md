@@ -57,8 +57,11 @@ And even more so that society as it possibly once was, used to run that way, whe
 
 # But
 Your life is yours to choose, as you only get to live once, live the way you want it.
+
 If that's being the most horrid person on the planet? Then so be it.
 
 -----------
 
 I am not who I am, I am who I'm not.
+
+As it is written, so it shall be done.
