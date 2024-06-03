@@ -38,3 +38,6 @@ and last but not least
 What it means to be human, is to error, and grow from faults
 
 and don't be like certain companies or organizations that follow the three E's
+- **E**mbrace other competitors
+- **E**xpand over vast distances to envelop everything.
+- **E**xtinguish other competitions.
