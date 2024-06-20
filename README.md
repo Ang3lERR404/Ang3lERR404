@@ -3,6 +3,7 @@ I like a little bit of everything .w.
 
 # Learning [Zig](https://ziglang.org/)
 more zig to zig the zon
+and zlice ze zaza caek
 
 am available to collab .w.
 
